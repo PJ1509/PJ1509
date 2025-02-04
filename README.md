@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Unreal engine,Unity,DaVinci resolve, etc**
 
-- 📫 How to reach me **indihackme@gmail.com**
+- 📫 How to reach me **piyushbgnsingh@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
